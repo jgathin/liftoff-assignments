@@ -4,3 +4,7 @@ For this assignment, you will submit a high-level outline of your project. This 
 Project Outline
 
 https://docs.google.com/document/d/1vU7VMHMPx0MzOK7mjh16fUpiXY9R6e0xKsG9tyKziCo/edit?usp=sharing
+
+https://www.linkedin.com/in/jeremy-gathing-bba9b4a5/
+
+https://github.com/jgathin
